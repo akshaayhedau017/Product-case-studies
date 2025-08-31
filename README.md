@@ -52,6 +52,6 @@ Hi, I’m **Akshay Hedau**, a product enthusiast passionate about building scala
 
 - 💼 Experience: Product, Business Development, and Operations  
 - 🔗 [LinkedIn](https://www.linkedin.com/in/akshay-hedau-798a05226/)  
-- 📧 Email: akshayhedau017@gmail.com  
+- 📧 Email: akshayhedau133@gmail.com  
 
 ---
